@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @fatimafrazao or /fafrazao
+- 👀 I’m interested in product design, ux, service design, coffee, memes, internet, IA, DEI, photography, people and pets
+- 🌱 I’m currently learning ... english
+- 💞️ I’m looking to collaborate on ... design, UX/UI and DEI
+- 📫 How to reach me ... fafrazao86@gmail.com or linkedin/in/fafrazao or faux.com.br
